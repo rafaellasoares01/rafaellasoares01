@@ -2,6 +2,6 @@
 
 Eu participo do alura💙
 
-live a life you will remember 🖤🥀
+Live a life you will remember 🖤🥀
 
 @soaresxz_018 insta
