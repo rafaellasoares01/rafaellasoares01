@@ -1,2 +1,4 @@
-### Boas vindas ao meu perfil
-eu estou estudando no alura
+### Boas vindas ao meu perfil 💮
+Eu participo do alura💙
+live a life you will remember 🖤🥀
+@soaresxz_018 insta
